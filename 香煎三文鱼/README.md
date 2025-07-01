@@ -1,4 +1,4 @@
-# 香煎三文鱼扒 Pan-fried Salmon Steak
+# [香煎三文鱼扒 Pan-fried Salmon Steak](https://www.xiaohongshu.com/explore/61f2b73b0000000021037c59?xsec_token=ABXuQN3Z-u7kOzzshjKhVwgmMDd9a2DcMSUdxjN-WUzbY=&xsec_source=pc_search&source=web_explore_feed)
 
 ## 做法步骤 Practice steps
 - 三文鱼解冻后不用洗，擦干水分
